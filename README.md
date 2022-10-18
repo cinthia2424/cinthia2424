@@ -1,0 +1,3 @@
+- 👋 ***oi, meu nome é Cinthia***
+-  Meu insta @iamcinthiaa_
+-  :money_mouth_face:
